@@ -1,0 +1,2 @@
+Lemonade is a sweetened lemon-flavored beverage. There are varieties of lemonade found throughout the world.
+
